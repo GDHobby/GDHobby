@@ -1,0 +1,6 @@
+- 👋 Hello, I’m Hobby
+- 👀 I like testing cool stuff like this feature
+- 💞️ I’m not looking to collaborate for now, im still doing school stuff 
+- 😄 i don't care about pronouns, but im a Male
+- ⚡ Fun fact: there is a cool launcher around there called Bloxtrap, its
+-  really cool if u like to play roblox but want to change some stuff like menu styles
